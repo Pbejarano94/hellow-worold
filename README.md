@@ -2,6 +2,4 @@
 my-first-git
 
 Putos todos 
-
-puto sebas
-putos todos
+sebastian chupa culos 
